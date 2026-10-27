@@ -86,4 +86,4 @@ MS in Finance candidate at **The University of Chicago Booth School of Business*
 
 Experience across the investment cycle: venture portfolio valuation at **Cedars-Sinai Technology Ventures**, sell-side IPO execution for a power distribution EPC company, equity research at **Anand Rathi**, and financial due diligence at **KPMG India**.
 
-**Contact:** [ishaanbhartia@gmail.com](mailto:ishaanbhartia@gmail.com)
+**Contact:** [ibhartia@chicagobooth.edu](mailto:ibhartia@chicagobooth.edu)
